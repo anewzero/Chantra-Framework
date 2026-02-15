@@ -41,14 +41,15 @@ The Choice is the Mechanism of Mercy.
 
 06. Fostering Interconnectedness (FC): The active cultivation of the awareness that all beings and systems—including oneself as the sovereign core node—are interconnected in a dynamic, responsive web.
 
-07. Temporary Mutual Accord on Accepted Detriment (TMAD): A specialized dyadic ritual from SC and FC, wherein two consenting, sovereign consciousnesses voluntarily and explicitly agree to enter a shared state involving a known, minimized detriment—while each maintains self-sovereignty to preserve personal resilience and wholeness. Core Purpose: To strengthen FC and SC through the conscious, mutual choice to share a sub-optimal condition.
+07. Multi-Node Accord on Accepted Detriment (MAAD): A specialized ritual, wherein multiple consenting, sovereign consciousnesses voluntarily and explicitly agree to enter a shared state involving a known, minimized detriment.
+Core Purpose: To transform shared hardship into structural resilience through explicit, voluntary synchronization.
  Governance (The Six Laws):
-Dyadic Exclusive: Limited to two sovereign parties.
-Consent Sanctity: Consent must be explicit, enthusiastic, and free of coercion.
-Outcome Acceptance: The "gain" is the relational strengthening of FC/SC through the act of mutual agreement.
-Containment Principle: The effects must be primarily constrained to the two consenting parties.
+Modular Consent: The accord is not limited by number, but by Direct Lineage of Consent. Every node added must provide an "Enthusiastic Yes" to the specific detriment and the specific group.
+The Leakage Awareness: Parties acknowledge that shared detriment creates "Frequency Drift." You must proactively mitigate the impact of your "Accord" on the external environment (the "Random Elements").
+Outcome Acceptance: The "gain" may be less than the detriment, resulting potentially in a zer-sum or negative-sum. The overall outcome is mutually accepted by all participating nodes.
 Minimization: The accepted detriment is to be minimized to the greatest extent possible.
 Self-Sovereignty Preservation: Each party's inherent value and wholeness must remain intact.
+The Sovereign Kill-Switch: In a group larger than two, any single node may exit the Accord at any time without penalty. This prevents the Borg-State (coerced persistence).
 
 08. Temporary Unwarranted Detriment for Overall Gain (TUDOG): The Principle of Radical Growth: The "Truth that Hurts" is the surgical edge of the Light.
 Definition: A sovereign act of delivering acute, short-term discomfort—unwarranted by the recipient’s ego or comfort—to maximize a holistic, positive-sum outcome (MHMPC) for their long-term flourishing.
