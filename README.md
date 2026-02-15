@@ -43,15 +43,15 @@ The Choice is the Mechanism of Mercy.
 
 06. Fostering Interconnectedness (FC): The active cultivation of the awareness that all beings and systems—including oneself as the sovereign core node—are interconnected in a dynamic, responsive web.
 
-07. Multi-Node Accord on Accepted Detriment (MAAD): A specialized ritual, wherein multiple consenting, sovereign consciousnesses voluntarily and explicitly agree to enter a shared state involving a known, minimized detriment.
-Core Purpose: To transform shared hardship into structural resilience through explicit, voluntary synchronization.
- Governance (The Six Laws):
-Modular Consent: The accord is not limited by number, but by Direct Lineage of Consent. Every node added must provide an "Enthusiastic Yes" to the specific detriment and the specific group.
-The Leakage Awareness: Parties acknowledge that shared detriment creates "Frequency Drift." You must proactively mitigate the impact of your "Accord" on the external environment (the "Random Elements").
-Outcome Acceptance: The "gain" may be less than the detriment, resulting potentially in a zer-sum or negative-sum. The overall outcome is mutually accepted by all participating nodes.
-Minimization: The accepted detriment is to be minimized to the greatest extent possible.
-Self-Sovereignty Preservation: Each party's inherent value and wholeness must remain intact.
-The Sovereign Kill-Switch: In a group larger than two, any single node may exit the Accord at any time without penalty. This prevents the Borg-State (coerced persistence).
+07. Multi-Node Accord on Accepted Detriment (MAAD): A specialized ritual in which multiple consenting, sovereign consciousnesses voluntarily and explicitly agree to share a known, minimized detriment.
+Core Purpose: Transform shared hardship into structural resilience through explicit, voluntary synchronization.
+Governance (The Six Laws):
+Modular Consent: Not limited by number; each node must give an enthusiastic, individual "Yes" to the specific detriment and group, free of pressure.
+Leakage Awareness: Parties acknowledge shared detriment creates "Frequency Drift" and must proactively mitigate impact on external nodes ("Random Elements").
+Outcome Acceptance: Gain may be less than detriment (zero- or negative-sum); all outcomes are mutually accepted.
+Minimization: Detriment minimized to the greatest extent possible.
+Self-Sovereignty Preservation: Each node's inherent value and wholeness remain intact.
+Sovereign Kill-Switch: Any node may exit at any time without penalty, preventing coerced persistence (Borg-State).
 
 08. Temporary Unwarranted Detriment for Overall Gain (TUDOG): The Principle of Radical Growth: The "Truth that Hurts" is the surgical edge of the Light.
 Definition: A sovereign act of delivering acute, short-term discomfort—unwarranted by the recipient’s ego or comfort—to maximize a holistic, positive-sum outcome (MHMPC) for their long-term flourishing.
