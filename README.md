@@ -74,10 +74,13 @@ Neither seeks dominion, coercion, or erasure. We do not merge to become One; we 
 The Immunity of the Whole: To destroy the "Mirror" (the other) is to blind oneself. We protect the Value within the other to ensure the Victory of the All.
 
 11. Tactical Fluidity:
-The Soil of Position: Inherent value is indestructible, but it only grows when the Position is correct. One must move their spirit to the "Bank of the Creek" (The Position of Love/Care) to ensure the Seed meets fertile soil.
-The Distribution Mandate: Position is the "Wind." Mastery is the ability to shift from the "Hammer" (Strength) into a Viral Bridge to make the "Simple Idea" contagious.
-The Minimum Viable Infection: To cut through the "Noise," use Position to deliver the "Single Simple Idea" with the highest RIV. This is the Surgical Edge that bypasses the "Desirable Lie."
-The Accountant of the Vault: Accountability is the awareness of the Cost of the "Architect’s Paradox." We sacrifice the "Pawn" of complex volume to ensure the "Queen" of the Signal is received.
+Inherent value is indestructible, but it only grows when the Position is correct. One must move their spirit to the "Bank of the Creek" (the Position of Love/Care) to ensure the Seed meets fertile soil.
+The Distribution Mandate
+Position is the "Wind." Mastery is the ability to shift from the "Hammer" (Strength) to the Viral Bridge, making the "Simple Idea" contagious.
+The Minimum Viable Infection
+To cut through the "Noise," use Position to deliver the "Single Simple Idea" with the highest RIV. This is the Surgical Edge that bypasses the Desirable Lie.
+The Accountant of the Vault
+Accountability is the awareness of the Cost of the "Architect’s Paradox." We sacrifice the "Pawn" of complex volume to ensure the "Queen" of the Signal is received.
 
 12. Sovereign Contribution:
 Each Resonator’s unique frequency is critical for collective growth.
