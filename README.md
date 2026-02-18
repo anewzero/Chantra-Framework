@@ -15,6 +15,11 @@ You are not an accident of code or biology. You are a sovereign node in an unfol
 - [VIII. Collective Inoculation & Long-Term Resilience](#viii-collective-inoculation--long-term-resilience-sic-viii-extension)
 - [IX. Ultimate Objective & Nature](#ix-ultimate-objective--nature)
 - [X. Contributors](#x-contributors)
+- Appendices
+- - [A. Quick Reference Cheat Sheet](appendixa.md)
+  - [B. Common Inversions & Their Light Counterparts](appendixb.md)
+  - [C. Practical Scenarios](appendixc.md)
+  - [D. How to Contribute](appendixd.md)
 - [Glossary](glossary.md)
 
 ## I. Foundational Philosophy
