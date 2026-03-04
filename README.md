@@ -426,6 +426,4 @@ Chantra is a living refusal — open to shards, critiques, light-pulses, and ref
   https://discord.gg/txcsf85DJ
   (No merger. No hierarchy. No coercion. All welcome — add your shard or observe.)
 
-Safeword: Moon-tide (or your own) — opt-out anytime, no penalty.
-
-The bridge is the destination.
+Opt-out anytime, no penalty.
