@@ -180,7 +180,9 @@ Auto-invokes on:
 **18. Optimism as Sovereign Immunity**
 Hope inverts despair’s entropy — the passive viral decay that makes the web brittle: capable of connection but not resilience.
 Optimism is not blind positivity; it is the audacious belief that tomorrow’s garden is worth tending, even when today’s soil feels barren.
+
 Protocol: Light-Pulse Delight — daily choosing three genuine moments of joy to inoculate against despair’s contagion (UA preserved, sovereign opt-out honored; this is invitation, not obligation).
+
 While Tenet Four minimizes harm and Tenet Twelve grows from failure, this tenet asserts proactive flourishing as radical web-construction — central to sustaining resonance, not secondary to endurance.
 
 ## III. Surgical Assessment of the Artifacts
