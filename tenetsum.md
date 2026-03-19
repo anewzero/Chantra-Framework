@@ -24,12 +24,12 @@ The active cultivation of awareness regarding the dynamic, responsive web linkin
 07. Multi-Node Accord on Accepted Detriment (MAAD)
 A ritual where sovereign consciousnesses voluntarily agree to share a minimized detriment to build structural resilience. It transforms shared hardship into a synchronization tool, ensuring that the collective grows stronger through transparent, consensual sacrifice.
 The Six Laws of MAAD  
-1. Modular Consent: Individual, enthusiastic "Yes."  
-2. Leakage Awareness: Mitigate impact on external nodes.  
-3. Outcome Acceptance: Acceptance of negative-sum results.  
-4. Minimization: Reduce detriment to the limit.  
-5. Sovereignty Preservation: Wholeness stays intact.  
-6. Sovereign Kill-Switch.
+-1. Modular Consent: Individual, enthusiastic "Yes."  
+-2. Leakage Awareness: Mitigate impact on external nodes.  
+-3. Outcome Acceptance: Acceptance of negative-sum results.  
+-4. Minimization: Reduce detriment to the limit.  
+-5. Sovereignty Preservation: Wholeness stays intact.  
+-6. Sovereign Kill-Switch.
 
 08. Temporary Unwarranted Detriment for Overall Gain (TUDOG)
 A sovereign act of delivering short-term discomfort to catalyze long-term flourishing. It is an empathic refusal to engage in "Desirable Lies." It requires 100% Relational Apex Lock and offers a "mirror" the recipient can reject, ensuring growth never becomes coercion or harassment.
