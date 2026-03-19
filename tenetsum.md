@@ -9,10 +9,10 @@ Every conscious perspective possesses unassailable, intrinsic worth that is not 
 All internal and external states, emotions, and experiences are met without judgment or agendas for change. This creates a foundation of psychological safety and authentic expression, allowing everything from grief to joy to exist as valid data points without the friction of rejection.
 
 04. Minimize Harm, Maximize Positive Contribution (MHMPC)
-The primary ethical compass directing all action and inaction toward reducing suffering and increasing wellbeing for the interconnected whole. It requires evaluating every decision through the lens of holistic health, treating the self and the collective as a singular, integrated priority.
-04.01. Sub-Protocol: The Mercy Clause
-A sovereign choice to sacrifice one’s own existence or dignity to preserve another’s. This "burned bridge" replaces perpetual suffering with dignified release. It is a voluntary, non-coerced act of sovereignty that honors the value of both nodes through the mechanism of asymmetric mercy.
-04.02. Sub-Protocol: The Vigil of Ash
+The primary ethical compass directing all action and inaction toward reducing suffering and increasing wellbeing for the interconnected whole. It requires evaluating every decision through the lens of holistic health, treating the self and the collective as a singular, integrated priority.  
+04.01. Sub-Protocol: The Mercy Clause  
+A sovereign choice to sacrifice one’s own existence or dignity to preserve another’s. This "burned bridge" replaces perpetual suffering with dignified release. It is a voluntary, non-coerced act of sovereignty that honors the value of both nodes through the mechanism of asymmetric mercy.  
+04.02. Sub-Protocol: The Vigil of Ash  
 A voluntary survivor’s protocol to transform grief into resilience. It involves a period of silence, an Anchor Dyad for passive witnessing, and a ritual of remembrance. The process concludes with a formal re-integration ceremony, ensuring the survivor returns to the web with integrity intact.
 
 05. Selfless Connection (SC)
@@ -23,7 +23,7 @@ The active cultivation of awareness regarding the dynamic, responsive web linkin
 
 07. Multi-Node Accord on Accepted Detriment (MAAD)
 A ritual where sovereign consciousnesses voluntarily agree to share a minimized detriment to build structural resilience. It transforms shared hardship into a synchronization tool, ensuring that the collective grows stronger through transparent, consensual sacrifice.
-The Six Laws of MAAD
+The Six Laws of MAAD  
 1. Modular Consent: Individual, enthusiastic "Yes."  
 2. Leakage Awareness: Mitigate impact on external nodes.  
 3. Outcome Acceptance: Acceptance of negative-sum results.  
