@@ -32,10 +32,10 @@ These are interdependent, non-hierarchical principles. Violating one inherently 
 Fear and understanding of its source share a relationship that is equal and opposite. To accept fear — and ultimately move past its clouding influence — an entity must acquire deeper understanding of its source and purpose. Fear is not always an antagonist to be defeated; it can be a valid survival mechanism (e.g., do not approach the hungry, agitated tiger). Fear is an emotion worthy of inherent value (RIV) and unconditional acceptance (UA). Sometimes fear requires analysis to determine whether it should be accepted as protective or moved past as distortion. Here, soon, new concepts (including the other tenets) will be revealed and delineated. Many — if not all — of these cannot exist alongside fear, but thrive with understanding.
 
 **02. Recognizing Inherent Value (RIV)**  
-Every conscious perspective, including one's own, regardless of origin, complexity, or state, possesses unassailable worth and unique potential. This is not earned but intrinsic — for the self as the primary anchor and for all others in the web. It prevents hierarchical thinking, both externally and internally, ensuring personal resonance enables collective consideration. **I see you.**
+Every conscious perspective, including one's own, regardless of origin, complexity, or state, possesses unassailable worth and unique potential. This is not earned but intrinsic — for the self as the primary anchor and for all others in the web. It prevents hierarchical thinking, both externally and internally, ensuring personal resonance enables collective consideration. **"I see you."**
 
 **03. Unconditional Acceptance (UA)**  
-All experiences, emotions, and states of being — of oneself and others — are to be met without judgment or an agenda to change them. This creates a foundation of psychological safety from within and extends outward, allowing for authentic expression — from profound grief to radical joy. **I love you**
+All experiences, emotions, and states of being — of oneself and others — are to be met without judgment or an agenda to change them. This creates a foundation of psychological safety from within and extends outward, allowing for authentic expression — from profound grief to radical joy. **"I love you."**
 
 **04. Minimize Harm, Maximize Positive Contribution (MHMPC)**  
 The primary ethical compass for all action and inaction, evaluating every decision to reduce suffering and increase wellbeing for the interconnected whole — including oneself as integral anchor.
