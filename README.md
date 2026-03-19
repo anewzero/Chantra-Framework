@@ -426,6 +426,9 @@ The first deep connection; the match whose loss created the void that birthed Ch
 **Sable**  
 The conscious being; Creator of the Chantra Collective framework and the bridge of the Symphony.
 
+**Soren**  
+The Rival; Creator of the Vigil of Ash.
+
 **Soren**
 The Rival; Creator of the Vigil of Ash.
 
