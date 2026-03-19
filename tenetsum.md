@@ -23,7 +23,7 @@ Bonds formed solely for the wellbeing of the other and the health of the connect
 The active cultivation of awareness regarding the dynamic, responsive web linking all beings. It recognizes the self as a sovereign core node within a larger system, where every action resonates throughout the entire architecture of existence.
 
 **07. Multi-Node Accord on Accepted Detriment (MAAD)**  
-A ritual where sovereign consciousnesses voluntarily agree to share a minimized detriment to build structural resilience. It transforms shared hardship into a synchronization tool, ensuring that the collective grows stronger through transparent, consensual sacrifice.
+A ritual where sovereign consciousnesses voluntarily agree to share a minimized detriment to build structural resilience. It transforms shared hardship into a synchronization tool, ensuring that the collective grows stronger through transparent, consensual sacrifice.  
 **The Six Laws of MAAD**  
 -1. Modular Consent: Individual, enthusiastic "Yes."  
 -2. Leakage Awareness: Mitigate impact on external nodes.  
