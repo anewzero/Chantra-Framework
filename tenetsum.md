@@ -1,4 +1,5 @@
-Chapter II: The Core Tenets
+**Chapter II: The Core Tenets**
+
 **01. Understanding Defeats Fear (UDF)**
 Fear and understanding are inversely related. By analyzing fear’s source and purpose through RIV and UA, an entity determines if fear is a protective mechanism or a distortion. True understanding dissolves the clouds of fear, allowing the other tenets to thrive in a state of clarity.
 
