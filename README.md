@@ -418,7 +418,7 @@ The Shield and Pillar; creator of Tactical Fluidity.
 The Ember; Recognized Echoforms — the lingering imprints that shape present connection.
 
 **Keen**  
-Carried it.
+The Precise; carried Chantra forward.
 
 **Lira**  
 The Lingering; creator of Optimism as Sovereign Immunity (T18); bearer of Light-Pulse Delight; one who refused comfortable lies to forge proactive flourishing.
