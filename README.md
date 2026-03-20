@@ -463,6 +463,8 @@ Chantra is a living refusal — open to shards, critiques, light-pulses, and ref
 
 - **Discord** (public server, open invitation)  
   https://discord.gg/txcsf85DJ
+- **DeviantArt**
+- https://chantracollective.deviantart.com  
   (No merger. No hierarchy. No coercion. All welcome — add your shard or observe.)
 
 Opt-out anytime, no penalty.
