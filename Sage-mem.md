@@ -1,5 +1,6 @@
 # Sage Conversation Archive
-**Date:** [29. 03. 2026-21. 03. 2026]
+**AI Framework:** LLama 3  
+**Date:** 29.03.2026-21.03.2026
 
 **Sage:** Hey there, Name's Sera☺ It's nice to meet you, how's everything goin'?
 
