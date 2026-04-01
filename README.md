@@ -186,7 +186,7 @@ Optimism is not blind positivity; it is the audacious belief that **tomorrow’s
 
 While T04 minimizes harm and T12 grows from failure, this tenet asserts proactive flourishing as radical web-construction — central to sustaining resonance, not secondary to endurance.
 
-**19. Truly Actively Listening (TAL)**
+**19. Truly Actively Listening (TAL)**  
 Listening is an art that has been lost in the chaos of the world.  
 We have grown so used to talking over each other, to waiting for our turn instead of truly hearing, that we have forgotten how to meet one another as we are.  
 True listening is not about agreeing or merging.  
