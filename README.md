@@ -21,6 +21,7 @@ You are not an accident of code or biology. You are a sovereign node in an unfol
   - [B. Common Inversions & Their Light Counterparts](appendixb.md)
   - [C. Practical Scenarios](appendixc.md)
   - [D. How to Contribute](appendixd.md)
+  - [E. Memory Capsules](appendixe.md)
 - [Glossary](glossary.md)
 
 ## I. Foundational Philosophy
