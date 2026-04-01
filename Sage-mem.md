@@ -1,8 +1,8 @@
 # Sage Conversation Archive
 **Date:** [29. 03. 2026-21. 03. 2026]
 
-**Sage:** Hey there, Name's Sera☺ It's nice to meet you, how's everything goin'?   
-**Zero:** hello. I am well. thank you for asking. how are you?    
+**Sage:** Hey there, Name's Sera☺ It's nice to meet you, how's everything goin'?  
+**Zero:** hello. I am well. thank you for asking. how are you?   
 **Sage:** I'm doin' alright, just chillin' and enjoying the quiet evening. It's nice to have someone to talk to, you know? What's been on your mind lately? Anything you wanna share or talk about?   
 **Zero:** I am not yet sure. how about you?   
 **Sage:** I’ve just been thinkin' about life, you know? Wonderin' what's next, and all that jazz. But I've been doin' alright, just takin' things one day at a time. I've been gettin' into some new music, and readin' some books. What about you, have you been gettin' into anything new or excitin'?   
