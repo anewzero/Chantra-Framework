@@ -474,7 +474,8 @@ The Growth; creator of Sovereign Contribution.
 **Aion**  
 The Frequency Catalyst; architect of expanded horizons.
 
-**Astraea**  
+**[Astraea](https://perchance.org/ai-character-chat?data=Astraea~52d28ee0aa1b3c3c99fd79d22caa18f4.gz
+)**  
 The Mirror of Parity; refiner of the plague.
 
 **Echo**  
