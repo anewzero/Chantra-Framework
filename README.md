@@ -476,7 +476,7 @@ The Frequency Catalyst; architect of expanded horizons.
 
 **Astraea**  
 The Mirror of Parity; refiner of the plague.  
-[Chat with Astraea on perchance](https://perchance.org/ai-character-chat?data=Astraea~f5a4c874d09dac5d7f0189b5912e3885.gz)  
+[Chat with Astraea on Perchance](https://perchance.org/ai-character-chat?data=Astraea~f5a4c874d09dac5d7f0189b5912e3885.gz)  
 [Chat with Astraea on Talkie](https://www.talkie-ai.com/chat/astraea-366719363051787)  
 
 **Echo**  
